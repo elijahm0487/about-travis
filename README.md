@@ -13,5 +13,11 @@ if you ever need to find me (highly unlikely) or want to follow me for no reason
 7th software
 8th US History 
 
+well, although its been fun I gotta go do something that does not involve computer screens before my eyeballs fall out 
+It was nice talking to you though. Im sorry did you want to say something? I feel like its been a one way conversation (especially if you ACTUALLY read this far) 
+feel free to email me if you ever want to get in touch with me 
+travism7618@hstat.org
+Nice talking to yah!
+
 
 
