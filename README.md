@@ -18,10 +18,11 @@ hmmm what would you like to know....
 8. US History 
 ---  
 Well, although its been fun I gotta go do something that does not involve computer screens before my eyeballs fall out 
-It was nice talking to you though. Im sorry did you want to say something? I feel like its been a one way conversation (especially if you ACTUALLY read this far) 
-feel free to email me if you ever want to get in touch with me 
-travism7618@hstat.org
+It was nice talking to you though!  
+Im sorry did you want to say something? I feel like its been a one way conversation (especially if you ACTUALLY read this far) 
+feel free to email me if you ever want to get in touch with me  
+travism7618@hstat.org  
 Nice talking to yah!  
-
+P.S. If you are interested in seeing more stuff like this, check out my [Digital SEP 11 Portfolio](https://sites.google.com/a/hstat.org/travism7618sep11/home)! Theres gonna be some cool stuff on there soon... I promise!
 
 
