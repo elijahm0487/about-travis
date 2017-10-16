@@ -1,5 +1,5 @@
 ## Hey reader!  
-I have no clue as to how you got here but my name is Travis. And here is some things about me!  
+I have no clue as to how you got here but my name is Travis. And here are some things about me!  
 hmmm what would you like to know....   
 * Well for starters I'm a pretty _chill_ guy, especially with this weather being so cold (see what i did there? ^-^)
 * If you missed it, my name is Matos, Travis Matos...
